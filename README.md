@@ -1,4 +1,4 @@
-# Hackear facebook en 30 segunds gratis 2024
+# Hackear facebook en 30 segundos gratis y rapido 2024 (nuevo truco Facebook)
 Descubre como puedes hackear una cuenta de facebook en muy poco tiempo gratis y rapido
 si deseas consguir la contraseña de algun perfil en poco tiempo estas en el sitio correcto.
 [HACKEAR AHORA ➥ Comienza haciendo click aqui](https://t.co/mLDIMbafUj)
